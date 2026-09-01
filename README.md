@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧑🏻‍💻Gap-Year Student going into Computer Science degree from Sept. 2025 at Kingston<br>📚Currently learning on JavaScript<br>⛓️‍💥Looking to connect with people that share same interest in tech<br>⚽️Passionate about gym and football<br>🙎‍♂️Pronouns soft/ware
+🧑🏻‍💻2nd Year Student at Kingston<br>📚Currently learning high-valuable skills<br>⛓️‍💥Looking to connect with people that share same interest in tech<br>⚽️Passionate about gym and football<br>🙎‍♂️Pronouns soft/ware
 
 
 ## 🌐 Socials:
